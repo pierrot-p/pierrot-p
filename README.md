@@ -1,6 +1,6 @@
 <div align="center" width="100%">
-  
-![pierrot-p](https://count.getloli.com/get/@pierrot-p?theme=rule34)
+
+![IamProgrammerEnglish](https://github.com/pierrot-p/pierrot-p/assets/83146584/89319ec0-0375-46cc-805f-6d9a92da3d2f)
 
 </div>
 
